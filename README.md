@@ -1,6 +1,6 @@
 ### Hello and welcome to CyBear Jinni 🦾🐻🧞‍♂️
 
-Our goal here is to raise the quality of life for everyone and make the world a better place to live.
+Our goal here is to raise the quality of life for everyone and make the world a better place to live in.
 
 We are starting this by making Smart-Home 🏡 more affordable and accessible for the common person.
 
